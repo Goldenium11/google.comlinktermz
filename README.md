@@ -3,6 +3,6 @@ https://google.com
 
 https://3kh0.github.io
 
-https://vercel.wiki/search.html
+https://vercel.wiki/
 
 https://flipgrid.gq
