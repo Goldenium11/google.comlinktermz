@@ -1,13 +1,7 @@
 # google.comlinktermz
-https://google.com
+https://google.com(google)
 
-https://3kh0.github.io
+https://3kh0.github.io(3kh0)
 
-inter.thebesthistoryhelp.tk/
+https://xs.edgoxide.com(freedomproject)
 
-
-ixl-help.onrender.com/
-
-busy-lime-dugong-shoe.cyclic.app/
-
-schoology-8coh.onrender.com/
