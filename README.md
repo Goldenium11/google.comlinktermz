@@ -16,3 +16,6 @@ https://holyubofficial.net/
 
 https://mournfully.info/
 (holyunblocker)
+
+https://education.computers-science.info/
+(interstellar)
