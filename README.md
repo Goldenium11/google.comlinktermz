@@ -25,3 +25,6 @@ https://darknessgfiles.ml/
 
 https://3v3ry0n3.github.io/3kh0-Backup-v4
 (3kh0)
+
+https://essay.notpiracy.org/
+(gpt)
